@@ -3,5 +3,6 @@
 - I make roblox game, lol.
 - I eat hot chip.
 - I lie.
+- I like Lua.
 
 Join discord: https://discord.com/invite/NWhVsUC
