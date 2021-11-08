@@ -3,3 +3,5 @@
 - I make roblox game, lol.
 - I eat hot chip.
 - I lie.
+
+Join discord: https://discord.com/invite/NWhVsUC
